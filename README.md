@@ -1,0 +1,1 @@
+What is the capabilities approach to social justice? Explain the approach as well as why Nussbaum thinks it enables us to identify and criticize social injustices. Taking a contemporary example of a social injustice, apply Nussbaum's capabilities approach to this example. How does this approach help to illuminate the injustice?
